@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **bayyamohith32@gmail.com**
 
-- 📄 Know about my experiences [https://resume.io/r/UDdkmWlyB](https://resume.io/r/UDdkmWlyB)
+- 📄 Know about my experiences [Resume]([https://resume.io/r/UDdkmWlyB](https://drive.google.com/file/d/1lQX0ZISKVwfvqvKL73RElwfmmeBv0mJH/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
